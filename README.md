@@ -1,1 +1,1 @@
-# Telegra
+# Telegra Coin CryptoNight
